@@ -1,6 +1,6 @@
 ## **Spotify Premium APK 9.0.2.459 [Mod Desbloqueado] Descargar Para Android 2025**  
 
-| ![image](https://github.com/user-attachments/assets/cdc65f4f-8285-4caa-875c-d807b6e72ac9) | [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.io/spotify.html)  |
+| ![image](https://github.com/user-attachments/assets/2f9f876a-6db0-4872-a385-2770b62b2357)| [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.io/spotify.html)  |
 |:-------------------------------------------------:|-----------------------|
 
 ### **¿Qué es Spotify Premium APK 9.0.2.459?**  
